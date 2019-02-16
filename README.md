@@ -1,0 +1,2 @@
+# Teknat
+Teknisk-naturvitenskapelige fakultetet
